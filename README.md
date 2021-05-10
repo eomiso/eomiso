@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+
+> Motto : "Pain is inevitable, suffering is optional"
+>                                   - <<hat I Talk About When I Talk About Running>>, Haruki Murakami
+
+
+
 <!--
 **eomiso/eomiso** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
