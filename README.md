@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 
-> Motto : "Pain is inevitable, suffering is optional"
->                                   - <<hat I Talk About When I Talk About Running>>, Haruki Murakami
+> My Motto : "Pain is inevitable, suffering is optional"
+>                                   - < _how I Talk About When I Talk About Running_, Haruki Murakami
 
 
 
