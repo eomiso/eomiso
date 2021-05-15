@@ -1,9 +1,7 @@
 ### Hi there 👋
 
-> 
 > "Pain is inevitable, suffering is optional"
-> 
->                          *how I Talk About When I Talk About Running*, Haruki Murakami
+> *how I Talk About When I Talk About Running*, Haruki Murakami
 
 
 
